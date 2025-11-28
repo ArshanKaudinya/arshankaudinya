@@ -8,6 +8,6 @@ Plenty of people chase “the next big thing”. I’m more interested in becomi
 
 I like meeting new people - Different values, different habits, different worlds. I love to see perspectives.
 
-Portfolio: arshankaudinya.com
+Portfolio: [link](https://www.arshankaudinya.com/)
 
-X: https://x.com/ArshanKaudinya
+X: [link](https://x.com/ArshanKaudinya)
